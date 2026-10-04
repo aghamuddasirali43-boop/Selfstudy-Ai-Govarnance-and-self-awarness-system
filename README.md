@@ -1,0 +1,1 @@
+# Selfstudy-Ai-Govarnance-and-self-awarness-system
